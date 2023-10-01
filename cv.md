@@ -1,6 +1,6 @@
-姓名：李喬安 (Samuel C.A. Lee)
-聯絡方式：[email@calee.tw](mailto:email@calee.tw)
-居住地：台北
+姓名：李喬安 (Samuel C.A. Lee)  
+聯絡方式：[email@calee.tw](mailto:email@calee.tw)  
+居住地：台北  
 
 ## 自我介紹
 
